@@ -1,0 +1,2 @@
+# premium-junk-journal-001-junk-journal-building-epheme
+Stop letting your beautiful ephemera collect dust in shoeboxes. The Junk Journal Building &amp; Ephemera Craft Studio is your all-in-one digital workspace to curate, plan, and assemble stunning junk journals—without the creative clutter.  This Notion template solves the chaos of managing physical and digital ephemera by providing a structured system fo
